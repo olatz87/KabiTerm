@@ -1,0 +1,1 @@
+/sc01a4/users/operezdevina001/BACKUP/Doktoretza/kodea/3.sintaxia/foma/deklinabideak.fst
